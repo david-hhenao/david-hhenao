@@ -5,4 +5,4 @@
 
 [**LinkedIn Profile**](https://www.linkedin.com/in/david-hhenao-data/)
 
-[**Plazi profile**](https://platzi.com/p/david-hhenao/)
+[**Platzi Profile**](https://platzi.com/p/david-hhenao/)
